@@ -26,9 +26,7 @@ Problem Solving
 
 📫 Connect With Me
 GitHub: https://github.com/itsmokshith-sys
-LinkedIn: https://www.linkedin.com/in/mokshith-a-h-7950a02bb/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bh9cwllLnR8%2B%2FuhQmqPJTwQ%3D%3D
-
-
+LinkedIn: https://www.linkedin.com/in/mokshith-a-h-7950a02bb
 
 
 
